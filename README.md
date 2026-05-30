@@ -35,7 +35,7 @@ O chamado oficial da torcida para demonstrar união e engajamento é o **#VamoZi
 
 ## 👑 Fundação e Gestão Executiva
 * **Fundador e Idealizador:** Henrique Lohma. Atua como designer principal, criador de conteúdo e piloto de simracing.
-* **Co-organizador:** Henrique Benevenutte. Convidado por sua experiência prévia nos e-sports para gerenciar a administração e a produção de conteúdo.
+* **Co-organizador:** Henrique Redi. Convidado por sua experiência prévia nos e-sports para gerenciar a administração e a produção de conteúdo.
 * **Identidade dos Fundadores:** Além do nome homônimo (Henrique) e da atuação profissional como designers, ambos compartilham a paixão pelo Botafogo de Futebol e Regatas.
 
 ---
@@ -71,7 +71,7 @@ A principal vertical competitiva de simuladores da equipe, focada no desenvolvim
 * **Jogador:** Bicão
 * **Jogador:** Steeve
 * **Jogador:** Manito
-* **Coach (Treinador):** Mr. Sarna Paiolzin
+* **Coach (Treinador):** Mr. Sarna Fumante
 
 ---
 
